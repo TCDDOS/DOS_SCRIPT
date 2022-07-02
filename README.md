@@ -19,4 +19,4 @@ remember: you are responsible for the attacks since this tool was created for ed
 ```
 
 If your Need Any Help So You Can Dm Me In Telegram 
-Telegram Username :- ``` @NGAMERxCODER ```
+ Username :- ``` @NGAMERxCODER ```
